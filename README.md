@@ -1,7 +1,7 @@
-# Nerum
-## Hello, my name is Nerum! <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="30px">
+# ToZix
+## Hello, my name is ToZix! <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="30px">
 
-<br>You can add me on [discord](https://discordapp.com/): Nerum#6726<br/>
+<br>You can add me on [discord](https://discordapp.com/): ToZix#6726<br/>
 
 ---
 
