@@ -1,7 +1,7 @@
 # ToZix
 ## Hello, my name is ToZix! <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="30px">
 
-<br>You can add me on [discord](https://discordapp.com/): ToZix#1301<br/>
+<br>You can add me on [discord](https://discordapp.com/): ToZix#0001<br/>
 
 ---
 
