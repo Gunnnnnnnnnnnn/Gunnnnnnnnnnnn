@@ -1,7 +1,7 @@
-# ToZix
-## Hello, my name is ToZix! <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="30px">
+# Gun
+## Hello, my name is Gun! <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="30px">
 
-<br>You can add me on [discord](https://discordapp.com/): ToZix#0001<br/>
+<br>You can add me on [discord](https://discordapp.com/): peacekeeper_._<br/>
 
 ---
 
