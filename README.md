@@ -1,7 +1,7 @@
 # Gun
 ## Hello, my name is Gun! <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="30px">
 
-<br>You can add me on [discord](https://discordapp.com/): peacekeeper_._<br/>
+<br>You can add me on [discord](https://discordapp.com/): gun_._<br/>
 
 ---
 
